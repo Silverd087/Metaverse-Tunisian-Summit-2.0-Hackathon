@@ -52,6 +52,6 @@ To experience the future of decentralized finance, visit our website: [CryptoVer
 
 
 🌐 Metaverse Tunisian Summit:
-Explore the summit's official website  [here](https://cryptoverse4.mydurable.com/?pt=NjU1ZjZmZjg3YWM0ZjkyMmVlNjg4NzkzOjE3MDA4NDc4ODMuOTMxOnByZXZpZXc=) for more details on the event, speakers, and additional resources.
+Explore the summit's official website  [here](https://cryptoverse4.mydurable.com/?pt=NjU1ZjZmZjg3YWM0ZjkyMmVlNjg4NzkzOjE3MDA4NDc4ODMuOTMxOnByZXZpZXc=) for more details on the product.
 
 Thank you for joining us on this exciting metaverse journey! 🌈✨
