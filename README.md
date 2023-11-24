@@ -21,6 +21,6 @@ Keep an eye on this repository for real-time updates, post-event summaries, and 
 Share your thoughts, questions, or interesting findings in the Discussions section. Let's foster a community-driven dialogue around the metaverse.
 
 🌐 Metaverse Tunisian Summit:
-Explore the summit's official website  [here]([https://metaversetunisiansummit.com](https://cryptoverse4.mydurable.com/?pt=NjU1ZjZmZjg3YWM0ZjkyMmVlNjg4NzkzOjE3MDA4NDc4ODMuOTMxOnByZXZpZXc=)) for more details on the event, speakers, and additional resources.
+Explore the summit's official website  [here](https://cryptoverse4.mydurable.com/?pt=NjU1ZjZmZjg3YWM0ZjkyMmVlNjg4NzkzOjE3MDA4NDc4ODMuOTMxOnByZXZpZXc=) for more details on the event, speakers, and additional resources.
 
 Thank you for joining us on this exciting metaverse journey! 🌈✨
